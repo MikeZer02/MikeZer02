@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MikeZer02
+- 👋 Hi, I’m @Mihigh
 - 👀 I’m interested in new ways to learn
 - 🌱 Electrical Engineer
 
